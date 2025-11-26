@@ -1,1 +1,0 @@
-![alt tag](http://s28.postimg.org/vct5kgwu5/i_OS_Simulator_Screen_Shot_Dec_8_2014_11_14_26.png)
